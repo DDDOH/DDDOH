@@ -54,7 +54,7 @@ Shoot me a question and I'll get back to you in a jiffy, typically within 48 hou
 # A few fun flicks of my wand ⚡
 - Record holder for sleeping up to 16 hours straight! 💤
 - Enjoy a little tipple now and then. 🍷
-- A staunch Marxist and not a fan of the white left. 🚩
+- A staunch Marxist and not a fan of the [Baizuo](https://en.wikipedia.org/wiki/Baizuo). 🚩
 - Hiphop music is my jam! 🎶 Here are some clubs where I've busted a move:
   - Taxi, Shenyang, Liaoning, China
   - Pulse, Xiamen, Fujian, China

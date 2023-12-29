@@ -6,6 +6,8 @@
 Here are some quirky tidbits about me:
 -->
 
+[![Visits Badge](https://badges.pufler.dev/visits/DDDOH/badge-it)](https://badges.pufler.dev)
+
 I'm a PhD student brewing up some cool stuff at the Rotman School of Management, University of Toronto, and joining forces with the wizards at Microsoft Research Asia. 🎓🔬
 
 Check out my scholarly spells:
